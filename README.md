@@ -1,2 +1,0 @@
-# Skitours for Norway
-
